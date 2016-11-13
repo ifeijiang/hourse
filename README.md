@@ -4,6 +4,10 @@
 
 http://www.haokoo.com/else/3074031.html
 
+http://go.cqmmgo.com/forum-314-thread-32821465445043866-showthread-25757719-puid-25757719-1-1.html
+
+http://go.cqmmgo.com/forum-314-thread-13041465378365930-1-1.html
+
 ## 二手房和新房比较
 ```
 
